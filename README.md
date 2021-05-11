@@ -5,6 +5,6 @@ I'm  Rajalakshmi K K
 - 👯 I’m looking to collaborate on major data analytics project👩‍💻
 - 🤔 I’m looking for help with career🤗
 - 💬 Ask me about anything 😉
-- 📫 How to reach me: email me
+- 📫 How to reach me: email me[ rajalakshmikk072@gmail.com ] 📩
 - 😄 Pronouns: she/her
 
